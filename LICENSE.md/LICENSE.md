@@ -112,9 +112,9 @@ Contacting Us
 
 If there are any questions regarding this privacy policy, you may contact us using the information below.
 
-Perth Road Safety Alerts
+OnlyForFans™
 Perth, Western Australia
 Australia
 lessthanzer0h@protonmail.com
 
-Last Edited on 2017-11-18
+Last Edited on 2019-8-1
